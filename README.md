@@ -11,6 +11,6 @@ TEAM MEMBERS
      
      4.Nushrath Fathima.M.J- Team Member3
      
-     5.Arshiya.J- Team Member4
+     5.Parimala.R- Team Member4
      
-     6.Parimala.R- Team Member5
+     6.Arshiya.J- Team Member5
